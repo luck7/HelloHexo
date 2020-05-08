@@ -4,9 +4,9 @@
 
 # Site
 title: Hexo
-subtitle: ''
-description: ''
-keywords:
+subtitle: 'My Blogs'
+description: 'My Journal'
+keywords: 'sports,games,IT'
 author: Jeff Fox
 language: en
 timezone: ''
@@ -98,4 +98,7 @@ theme: landscape
 # Deployment
 ## Docs: https://hexo.io/docs/deployment.html
 deploy:
-  type: ''
+  type: git
+  repo: https://github.com/luck7/HelloHexo
+  # example, https://github.com/hexojs/hexojs.github.io
+  branch: gh-pages
