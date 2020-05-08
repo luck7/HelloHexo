@@ -5,10 +5,8 @@ tags: English
 ---
 
 
-## 2020
+## May 2020
 
-### May
-
-Your own resolution to succeed is more important than any other one thing.
+### Your own resolution to succeed is more important than any other one thing.
 -- Abraham Lincoln, 16th US president
 
