@@ -5,6 +5,4 @@ tags:
 ---
 
 
-## Hello Hexo
-
-### Create my new post
+## Create my new post
