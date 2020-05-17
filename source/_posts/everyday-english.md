@@ -54,11 +54,11 @@ tags: English
 ### I learned that good judgment comes from experience and that experience grows out of mistakes.
 -- Omar Bradley, General
 
-### Only by coming to grips with difficulty can you realize your full potential.
--- Charles de Gaulle, Statesman
-
 
 ## Week 18
+
+### Only by coming to grips with difficulty can you realize your full potential.
+-- Charles de Gaulle, Statesman
 
 ### It is literally true that you can succeed best and quickest by helping others to succeed.
 -- Napolean Hill, Motivational writer
