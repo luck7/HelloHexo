@@ -65,18 +65,3 @@ tags: English
 
 ### You can't do it unless you can imagine it.
 -- George Lucas, director
-
-
-
-
-
-
-
-
-
-
-
-
-
-
-
