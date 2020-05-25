@@ -7,6 +7,29 @@ tags: English
 
 # May 2020
 
+## Week 21
+
+### The great end of life is not knowledge but action.
+-- Thomas Henry Huxley
+
+### Never be unduly elated by victory or depressed by defeat.
+-- Horace Potter
+
+### The longest day has an end.
+-- Howell
+
+### Where there is a will, there is a way.
+-- Thomas Edison
+
+### Life is not all cakes and ale.
+-- Thomas Hughes
+
+### Happiness takes no account of time.
+-- Jack London
+
+### Cease to struggle and you cease to live.
+-- Thomas Carlyle
+
 ## Week 20
 
 ### I want to do, even if again.
