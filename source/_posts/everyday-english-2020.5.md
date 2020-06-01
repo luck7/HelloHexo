@@ -1,11 +1,34 @@
 ---
-title: Everyday English 2020
+title: Everyday English May 2020
 date: 2020-05-08 23:50:43
 tags: English
 ---
 
 
-# 2020
+# May 2020
+
+## Week 22
+
+### No pains, no gains.
+
+### You have to believe in yourself. That's the secret of success.
+-- Charles Chaplin
+
+### Every man is the master of his own fortune.
+-- Richard Steele
+
+### Courage is resistance to fear, mastery of fear - not absence of fear.
+-- Mark Twain
+
+### Living without an aim is like sailing without a compass.
+-- J. Ruskin
+
+### A man can be destroyed but not defeated.
+-- Ernest Hemingway
+
+### It is never too late to give up our prejudices.
+-- Henry David Thoreau
+
 
 ## Week 21
 
