@@ -1,7 +1,7 @@
 ---
 title: Everyday English
 date: 2020-06-01 23:50:43
-tags: English June 2020
+tags: [English, June, 2020]
 ---
 
 
