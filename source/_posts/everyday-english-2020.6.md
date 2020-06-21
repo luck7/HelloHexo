@@ -6,6 +6,19 @@ tags: [English, June, 2020]
 
 
 # June 2020
+Nothing is impossible to a willing heart.
+
+A stitch in time saves nine.
+
+We should consider every day lost on which we have not danced at least once.
+
+I can stand much vilified, can afford much praise.
+
+You will never know what you can do till you try.
+
+To love oneself is the beginning of a lifelong romance.
+
+When all else is lost, the future still remains.
 
 Don't try so hard, the best things come when you least expect them to.
 
