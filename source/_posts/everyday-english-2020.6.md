@@ -6,6 +6,25 @@ tags: [English, June, 2020]
 
 
 # June 2020
+
+Sometimes your plans don't work out because God has better ones.
+
+Grow old along with me; the best is yet to be.
+
+There is no royal road to learning.
+
+Good is good, but better carries it.
+
+All things come to those who wait.
+
+Weep no more, no sign. Sorrow calls no time that's gone.
+
+You can have it all. You just can't have it all at once.
+
+There is no coincidence in the world, only the inevitable result.
+
+Sharp tools make good work.
+
 Nothing is impossible to a willing heart.
 
 A stitch in time saves nine.
