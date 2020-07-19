@@ -7,26 +7,59 @@ tags: [English, July, 2020]
 
 # July 2020
 
+Talent without working hard is nothing.
+没有努力，天分不代表什么。
+
+Be the best version of you.
+做最好版本的你。
+
+Everything happens for a reason.
+这个世界，没有偶然。
+
+Be slow to promise and quick to perform.
+不轻诺，诺必果。
+
+Nothing down, nothing up.
+不经历风雨，怎能见彩虹。
+
+Life isn't fair, but it's still good.
+人生是不公平的，但还是好的很。
+
+Not being heard is no reason for silence.
+没有被听见不是沉默的理由。
+
 By falling we learn to go safely.
+吃一堑，长一智。
 
 Every cloud has a silver lining.
+山穷水尽疑无路，柳暗花明又一村。
 
 Never say die.
+永不气馁。
 
 Over prepare, and then go with the flow.
+准备要周全，然后随遇而安。
 
 Life is too short to waste time hating anyone.
+人生太短，短到来不及浪费时间去恨任何人。
 
 Love is composed of a single inhabiting two bodies.
+爱情是两个不同身体里住着同一个灵魂。
 
 Everyone's got a life that no one else knows about.
+每个人都有自己的人生，冷暖自知。
 
 Youth is not a time of life. It's a state of mind.
+青春不是年华，而是一种心境。
 
 As long as we live in each other's heart, death can't keep us apart.
+只要我们住在彼此心里，死亡也不能让我们分离。
 
 The truth is rarely pure and never simple.
+真相很少纯粹，也绝不简单。
 
 My life didn't please me, so I created my life.
+我的生活不能取悦我，所以我创造了自己的生活。
 
 Constant dropping wears the stone.
+锲而不舍，金石可镂。
