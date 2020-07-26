@@ -7,6 +7,34 @@ tags: [English, July, 2020]
 
 # July 2020
 
+Personality is to man what perfume is to a flower.
+人品之于人，犹如芳香之于花。
+-- C.C.Schwab
+
+Konowledge is power.
+知识就是力量。
+-- Francis Bacon
+
+Be wisely worldly, but not worldly wise.
+要善于处世，不要老于世故。
+-- Francis Quarles
+
+What makes life dreary is the want of motive.
+没有了目的，生活便郁闷无光。
+-- George Eliot
+
+It matters not how a man dies, but how he lives.
+一个人怎样死去并不重要，重要的在于他怎样活着。
+-- Samuel Johnson
+
+Adversity reveals genius; fortune conceals it.
+苦难显才华，好运隐天资。
+-- Horace
+
+There is no absolute success in the world, only constant progress.
+世界上的事没有绝对成功，只有不断地进步。
+-- Swift
+
 Talent without working hard is nothing.
 没有努力，天分不代表什么。
 
