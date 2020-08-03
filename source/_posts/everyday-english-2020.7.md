@@ -7,6 +7,26 @@ tags: [English, July, 2020]
 
 # July 2020
 
+The proper function of man is to live, but not to exist.
+人应该生活，而不是单纯生存。
+-- Jack London
+
+Encouragement is the oxygen of the soul.
+鼓励是灵魂的氧气。
+-- George M. Adams
+
+A great man is always willing to be little.
+伟大的人物总是愿意当小人物的。
+-- R. W. Emerson
+
+Every tragedy makes heroes of common people.
+每一场悲剧都会在平凡的人中造就出英雄来。
+-- Normna Stephens
+
+When a man is wrapped up in himself, he makes a pretty little package.
+一个人只顾自己的人不足以成大器。
+-- John Ruskin
+
 Personality is to man what perfume is to a flower.
 人品之于人，犹如芳香之于花。
 -- C.C.Schwab
