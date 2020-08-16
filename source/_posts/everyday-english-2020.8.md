@@ -7,6 +7,30 @@ tags: [English, August, 2020]
 
 # August 2020
 
+We cannot change anything unless we accept it.
+对一件事情我们必先接受它，才能改变它。
+
+Life is not a matter of a day.
+人生没有不重要的一天。
+
+Time never dies, we never part.
+时光不老，我们不散。
+
+It's kind of fun to do the impossible.
+做不可能的事蛮有趣的。
+
+Other man live to eat, while I eat to live.
+别人为食而生存，我为生存而食。
+-- Socrates
+
+Life is a flower of which love is the honey.
+人生是花朵，爱情是花蜜。
+-- Victor Hugo
+
+All for one, one for all.
+人人为我，我为人人。
+-- Dumas pere
+
 Easy come, easy go.
 易得者亦易失。
 -- Hazlitt
