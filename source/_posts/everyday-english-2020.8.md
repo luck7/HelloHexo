@@ -7,6 +7,27 @@ tags: [English, August, 2020]
 
 # August 2020
 
+The unexamined life is not worth linving.
+浑浑噩噩的生活不值得过。
+
+Life is not all roses.
+人生并不是康庄大道。
+
+The meaning of life is that it stops.
+生命之所以有意义是因为它会停止。
+
+Nothing for nothing.
+不费力气，一无所得。
+
+Familiarity breeds contempt.
+亲不尊，熟生蔑。
+
+Out of difficulties grow miracles.
+奇迹出自于困境。
+
+Circumstances? I make circumstances!
+英雄造时势。
+
 We cannot change anything unless we accept it.
 对一件事情我们必先接受它，才能改变它。
 
