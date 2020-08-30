@@ -7,7 +7,33 @@ tags: [English, August, 2020]
 
 # August 2020
 
-The unexamined life is not worth linving.
+The clouds may drop down titles and estates, and wealth may seek us, but wisdom must be sought.
+天上或许会掉下头衔与地产、财产或许会找上我们，但智慧我们必须自己去找。
+-- Edward Young
+
+Every challenge, every adversity, contains within it the seeds of opportunity and growth.
+每个挑战、每个逆境，里面都藏有机会与成长的种子。
+-- Roy Bennett
+
+A mind troubled by doubt cannot focus on the course to victory.
+被不确定所扰的人，无法专注在往胜利的道路。
+-- Arthur Golden
+
+Some people dream of success, while other people get up and make it happen.
+有些人有成功的梦想，其他人起身去实现它。
+-- Wayne Huizenga
+
+Live your life by a compass, not a clock.
+不要以时钟，而是罗盘来引领你的人生。
+-- Stephen Covey
+
+There is no disputing about tastes.
+人各有所好。
+
+Beware begninnings.
+慎始为上。
+
+The unexamined life is not worth living.
 浑浑噩噩的生活不值得过。
 
 Life is not all roses.
