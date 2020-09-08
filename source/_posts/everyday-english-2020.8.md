@@ -7,6 +7,10 @@ tags: [English, August, 2020]
 
 # August 2020
 
+Excellence is not a skill. It is an attitude.
+卓越不是有关技能，而是态度。
+-- Ralph Marston
+
 The clouds may drop down titles and estates, and wealth may seek us, but wisdom must be sought.
 天上或许会掉下头衔与地产、财产或许会找上我们，但智慧我们必须自己去找。
 -- Edward Young
