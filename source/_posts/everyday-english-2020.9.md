@@ -7,6 +7,74 @@ tags: [English, September, 2020]
 
 # September 2020
 
+Real integrity is doing the right thing, knowing that nobody's going to know whether you did it or not.
+正直是做对的事，即使你知道没有人会知道你做了什么。
+-- Oprah Winfrey
+
+Originality does not consist in saying what no one has ever said before, but in saying exactly what you think yourself.
+新颖不是说别人没有说过的话，而是完全说出自己的想法。
+-- James Stephens
+
+Even the wolf has its moments of weakness, in which it sides with the lamb and thinks: I hope it runs away.
+即使狼也有它软弱的时候，它和羊站在同一边并心想：我希望它跑掉。
+-- Adolfo Bioy Cassares
+
+In order to conquer, what we need is to dare, still to dare, and always to dare.
+为了征服，我们需要的是勇气，依然是勇气，永远是勇气。
+-- Georges Danton
+
+You don't have to see the whole staircase, just take the first step.
+你不用看到整个楼梯，你只需跨出第一步。
+-- Martin Luther King
+
+Be strong but not rude. Be kind but not weak. Be humble but not timid. Be proud but not arrogant.
+坚强但不要无礼，善良但不要软弱，谦虚但不要胆小，自豪但不要傲慢。
+-- Zig Ziglar
+
+The biggest communication problem is we do not listen to understand. We listen to reply.
+最大的沟通问题是，我们聆听不是为了了解，我们聆听是为了回答。
+-- Stephen Covey, Author
+
+Being brave means knowing that when you fail, you don't fail forever.
+勇敢就是知道即便你失败，你也不是永远失败。
+-- Lana Del Rey, Singer
+
+Persistence guarantees that results are inevitable.
+坚持不懈可以保证：得到结果是无可避免的。
+-- Paramahansa Yogananda
+
+Either you run the day, or the day runs you.
+不是你控制一天的时间怎么过，就是由那一天来控制你。
+-- Jim Rohn
+
+The question isn't who is going to let me; it's who is going to stop me.
+要问的不是谁会允许我，而是谁能阻止我。
+-- Andy Rand, Novelist
+
+He who fixes his mistakes and constantly moves forward will reach his goals.
+能改正自己的错误并持续前进的人，将可以打倒他的目标。
+-- Ernst Thalmann
+
+Your imagination is your preview of life's coming attractions.
+你的想象是你即将吸引到你的人生的预览。
+-- Albert Einstein
+
+Courage is contagious. When a brave man takes a stand, the spines of others are often stiffened.
+勇气是会传染的，当一个勇敢的人站出立场，其他人的背脊通常也会硬起来。
+-- Billy Graham
+
+Far and away the best prize that life offers is the chance to work hard at work worth doing.
+生命所能提供的最好犒赏，就是努力于值得做的工作。
+-- Theodore Roosevelt
+
+You can disagree without being disagreeable.
+你可以反对，但又不给人带来反感。
+-- Ruth Bader Ginsburg
+
+If you put off everything till you're sure of it, you'll never get anyting done.
+如果你在确定前把每件事都延后，你将不会完成任何事。
+-- Norman Vincent Peale
+
 The conventional view serves to protect us from the painful job of thinking.
 传统观点让我们省下痛苦的思考工作。
 -- John Kenneth Galbraith
