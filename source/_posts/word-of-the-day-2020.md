@@ -1,32 +1,32 @@
 ---
-title: Word of the Day
+title: Word of the Day 2020
 date: 2021-01-09 10:50:43
 tags: [English, Word, 2020]
 ---
 
-# January 2020
+# January
 
 
-# February 2020
+# February
 
 
-# March 2020
+# March
 
 
-# April 2020
+# April
 
 
-# May 2020
+# May
 
 
-# June 2020
+# June
 
 
-# July 2020
+# July
 
 constituent sketch shabby freight swear
 
-# August 2020
+# August
 
 cherish array remnant roar erase tap choir
 sacrifice decrepit peel straightforward go by arch divine
@@ -34,7 +34,7 @@ canal wilderness venture gravel damp defeat crater
 coarse invade lurk bubble carrot sweep barn 
 cherish depict twinkle
 
-# September 2020
+# September
 
 fluctuate accuse altitude reap turf numerous badminton
 solitary creation twilight verge steer daisy struggle
@@ -42,7 +42,7 @@ thrive destroy sheer immerse vanish congress mechanism
 vacant converge fantastic sprint spiral wield offshore
 slum
 
-# October 2020
+# October
 
 scrap foul cultivate feast appetite tug migrate
 advantage jumble resort porous barren gush debris
@@ -50,7 +50,7 @@ probe erect bounce reckless saddle contemporary geologic
 seaasoning referee converge stride escape cone voyage
 obscure scrap shatter
 
-# November 2020
+# November
 
 carve fluctuation grieve fort vegetation colleague
 wrench unfold depict bleak lodge elegant community
@@ -58,7 +58,7 @@ equipment symmetry overtime residential brochure whirl spectator
 combustion successive turbine canopy bead erode creative
 lizard predator
 
-# December 2020
+# December
 
 arboreal glacial magma skull crab curious kettle
 gradient botanical noticeable facial fireplace respond combination

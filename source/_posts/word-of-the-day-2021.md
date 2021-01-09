@@ -1,42 +1,42 @@
 ---
-title: Word of the Day
+title: Word of the Day 2021
 date: 2021-01-02 23:50:43
 tags: [English, Word, 2021]
 ---
 
-# January 2021
+# January
 
 hostile curiosity depart enlarge booklet barter buffet 
 infant robbery
 
-# February 2021
+# February
 
 
-# March 2021
+# March
 
 
-# April 2021
+# April
 
 
-# May 2021
+# May
 
 
-# June 2021
+# June
 
 
-# July 2021
+# July
 
 
-# August 2021
+# August
 
 
-# September 2021
+# September
 
 
-# October 2021
+# October
 
 
-# November 2021
+# November
 
 
-# December 2021
+# December
