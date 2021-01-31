@@ -26,7 +26,11 @@ cease correspond dominate denomination fluctuation dystrophy
 alienation consulate contaminant demerit avalanche friction
 entail disturbance conduce attrition brink correlate adjunct
 dump complementary catastrophe derelict ailment extracurricular
-epidemic 
+epidemic folklore fungi grove compel commitment daunt cascade
+domestic abide encroach commiserate enigma electrode brazen
+exuberant cosy bead diphthong epitomize familiarize blister
+genetics brazen disparage engross alleviate demographic
+
 
 # H-I-J-K-L-M-N
 
@@ -36,7 +40,10 @@ intense mess holistic loath molecule kiosk loin jerk
 incendiary loathe moderately longitudinal magma hasty
 instrumental introspection mingle liaise haul irresistible
 litter manor hamlet incorporate marginally identification
-manoeuvre manifest militant keystone irony integral 
+manoeuvre manifest militant keystone irony integral incarnate
+mosque notion mite inspect menace irrational lax insidious
+imperil lesion legitimate meteorology moisture mammal
+mentor inferior malt
 
 # O-P-Q-R-S-T
 
@@ -49,9 +56,13 @@ teem poultry plush promising sleek pictogram superstition
 sympathetic subordinate ritual stereoscopic tan populate 
 regurgitate optometrist relay threshold pasture propellant
 skim sympathy rendition prospectus sift precipitate stylish
-ornamental reluctant
+ornamental reluctant selenium temporal sensory overdraft pamper
+revive segregate thrifty slander ruthless sanitary sentient
+sluttish tempest tepid serene typhoon polytechnic prestige
+protein stitch promising superficial religion payslip
+pervasive prolonged 
 
 # U-V-W-X-Y-Z
 
 wedge veterinarian vintage vigorous upkeep vivid wander
-wad 
+wad ulterior vulgar vapor viability unanimous
