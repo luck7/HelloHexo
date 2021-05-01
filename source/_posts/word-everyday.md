@@ -4,65 +4,18 @@ date: 2021-05-01 15:00:00
 tags: [English, Word, Everyday]
 ---
 
-# A-B-C-D-E-F-G
+### A-B-C-D-E-F-G 
 
-estuary fascinate curiosity external extinction disillusion
-eclose devastating congestion afield approval flaw centigrade
-courageous academic biometrics clench corpus conjunction
-escalator adequate grateful chorus accomplish amplify
-exploit diverse constitution envisage erroneous baron
-conincide acupuncture exhilaration decipher adolescent
-allegation aggravation degenerate gleam bleak azure
-burgle contingent deserter disenchant extrude distort
-audition disruption authorize alchemist contrary derive
-determine advocate furnace expedition culminate deter adverse
-finale astonish concur elaborate exodus deteriorate debris
-fracture glacial brochure confront frock betray entrust
-demolition charter formidable commission geometry aspiration
-considerable courtship authority democratic conscious decompose
-furious clientele consultant diversify burglar crockery
-gullibly gorgeous glamor bistro fierce deceive adjacent
-cease correspond dominate denomination fluctuation dystrophy
-alienation consulate contaminant demerit avalanche friction
-entail disturbance conduce attrition brink correlate adjunct
-dump complementary catastrophe derelict ailment extracurricular
-epidemic folklore fungi grove compel commitment daunt cascade
-domestic abide encroach commiserate enigma electrode brazen
-exuberant cosy bead diphthong epitomize familiarize blister
-genetics brazen disparage engross alleviate demographic
+abide academic accomplish acupuncture adequate adjacent adjunct adolescent adverse advocate afield aggravation ailment alchemist alienation allegation alleviate amplify approval aspiration astonish attrition audition authority authorize avalanche azure baron bead betray biometrics bistro bleak blister brazen brazen brink brochure burglar burgle cascade catastrophe cease centigrade charter chorus clench clientele coincide commiserate commission commitment compel complementary concur conduce confront congestion conjunction conscious considerable constitution consulate consultant contaminant contingent contrary corpus correlate correspond cosy courageous courtship crockery culminate curiosity daunt debris deceive decipher decompose degenerate demerit democratic demographic demolition denomination derelict derive deserter deter deteriorate determine devastating diphthong disenchant disillusion disparage disruption distort disturbance diverse diversify domestic dominate dump dystrophy eclose elaborate electrode encroach engross enigma entail entrust envisage epidemic epitomize erroneous escalator estuary exhilaration exodus expedition exploit external extinction extracurricular extrude exuberant familiarize fascinate fierce finale flaw fluctuation folklore formidable fracture friction frock fungi furious furnace genetics geometry glacial glamor gleam gorgeous grateful grove gullibly 
 
+### H-I-J-K-L-M-N 
 
-# H-I-J-K-L-M-N
+habitual hamlet hasty haul hitherto holistic horizon hostel identification imperil incarnate incendiary incentive incorporate inferior initiative insidious inspect instrumental integral intense introspection irony irrational irresistible jerk keystone kiosk lax leaflet leap legitimate lesion liaise literate litter loath loathe loin longitudinal magma malt mammal manifest manoeuvre manor marginally mediocre menace mentor mere mess metaphor meteorology militant mingle minority mite moderately moisture molecule mosque nasty notion 
 
-leaflet initiative literate mere habitual mediocre horizon
-minority nasty incentive hitherto leap metaphor hostel
-intense mess holistic loath molecule kiosk loin jerk
-incendiary loathe moderately longitudinal magma hasty
-instrumental introspection mingle liaise haul irresistible
-litter manor hamlet incorporate marginally identification
-manoeuvre manifest militant keystone irony integral incarnate
-mosque notion mite inspect menace irrational lax insidious
-imperil lesion legitimate meteorology moisture mammal
-mentor inferior malt
+### O-P-Q-R-S-T 
 
-# O-P-Q-R-S-T
+optometrist organ ornamental orthodox overdraft pamper pasture patent payslip pension pervasive pictogram picturesque plush polytechnic populace populate poultry precipitate predominant predominate preferable preliminary prestige prolonged promising promising propellant prospectus protein regurgitate rehabilitate relay reliance religion reluctant rely rendition resemble revive ritual rudimentary ruthless salinity sanitary scent sceptical segregate selenium sensory sentient serene sift simplistic sketch skim slander sleek slouch sluttish specimen spectator sporadically spouse stale stereoscopic stitch strand stylish subordinate superficial superficial superstition supervise susceptible sympathetic sympathy synchronize tan teem tempest temporal tepid thesis threshold thrifty truce turbid typhoon 
 
-synchronize superficail resemble preliminary populace rehabilitate
-picturesque slouch preferable organ rely scent reliance truce
-pension patent thesis sceptical predominate rudimentary orthodox
-strand specimen stale predominant salinity supervise turbid
-spectator sketch sporadically spouse simplistic susceptible
-teem poultry plush promising sleek pictogram superstition
-sympathetic subordinate ritual stereoscopic tan populate 
-regurgitate optometrist relay threshold pasture propellant
-skim sympathy rendition prospectus sift precipitate stylish
-ornamental reluctant selenium temporal sensory overdraft pamper
-revive segregate thrifty slander ruthless sanitary sentient
-sluttish tempest tepid serene typhoon polytechnic prestige
-protein stitch promising superficial religion payslip
-pervasive prolonged 
+### U-V-W-X-Y-Z 
 
-# U-V-W-X-Y-Z
-
-wedge veterinarian vintage vigorous upkeep vivid wander
-wad ulterior vulgar vapor viability unanimous
+ulterior unanimous upkeep vapor veterinarian viability vigorous vintage vivid vulgar wad wander wedge
