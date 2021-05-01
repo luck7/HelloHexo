@@ -6,63 +6,16 @@ tags: [English, Word, Collection]
 
 # A-B-C-D-E-F-G
 
-estuary fascinate curiosity external extinction disillusion
-eclose devastating congestion afield approval flaw centigrade
-courageous academic biometrics clench corpus conjunction
-escalator adequate grateful chorus accomplish amplify
-exploit diverse constitution envisage erroneous baron
-conincide acupuncture exhilaration decipher adolescent
-allegation aggravation degenerate gleam bleak azure
-burgle contingent deserter disenchant extrude distort
-audition disruption authorize alchemist contrary derive
-determine advocate furnace expedition culminate deter adverse
-finale astonish concur elaborate exodus deteriorate debris
-fracture glacial brochure confront frock betray entrust
-demolition charter formidable commission geometry aspiration
-considerable courtship authority democratic conscious decompose
-furious clientele consultant diversify burglar crockery
-gullibly gorgeous glamor bistro fierce deceive adjacent
-cease correspond dominate denomination fluctuation dystrophy
-alienation consulate contaminant demerit avalanche friction
-entail disturbance conduce attrition brink correlate adjunct
-dump complementary catastrophe derelict ailment extracurricular
-epidemic folklore fungi grove compel commitment daunt cascade
-domestic abide encroach commiserate enigma electrode brazen
-exuberant cosy bead diphthong epitomize familiarize blister
-genetics brazen disparage engross alleviate demographic
-
+accuse advantage alpine altitude appetite aragonite arboreal arboreal arch array assassinate badminton barn barren bead bet bleak bosom botanical bounce bovine brashness brochure bubble calibre canal canopy carrot carve caustic cherish cherish chimney choir coalition coarse coastal cohesion colleague combination combustion community cone congress conifer constituent construction contemporary converge converge counsel crab cramp crater creation creative cultivate curb curious daisy damp debris debris decree decrepit defeat deflect depict depict destroy divine dormancy earnest eddy elegant equipment erase erect erode escape excitement exhort facial falter fantastic fathom feast fickle fireplace fluctuate fluctuation fort forte foul frail frantic freight fungus gauge gaunt geologic glacial glitch go_by gradient gravel grieve gush 
 
 # H-I-J-K-L-M-N
 
-leaflet initiative literate mere habitual mediocre horizon
-minority nasty incentive hitherto leap metaphor hostel
-intense mess holistic loath molecule kiosk loin jerk
-incendiary loathe moderately longitudinal magma hasty
-instrumental introspection mingle liaise haul irresistible
-litter manor hamlet incorporate marginally identification
-manoeuvre manifest militant keystone irony integral incarnate
-mosque notion mite inspect menace irrational lax insidious
-imperil lesion legitimate meteorology moisture mammal
-mentor inferior malt
+heritage hygiene immerse improvise intoxication invade jewelry jumble keen kestrel kettle landform lizard lodge lurk magma maim malleable manacle mechanism migrate minuscule mitigate moral mussel noticeable numerous 
 
 # O-P-Q-R-S-T
 
-synchronize superficail resemble preliminary populace rehabilitate
-picturesque slouch preferable organ rely scent reliance truce
-pension patent thesis sceptical predominate rudimentary orthodox
-strand specimen stale predominant salinity supervise turbid
-spectator sketch sporadically spouse simplistic susceptible
-teem poultry plush promising sleek pictogram superstition
-sympathetic subordinate ritual stereoscopic tan populate 
-regurgitate optometrist relay threshold pasture propellant
-skim sympathy rendition prospectus sift precipitate stylish
-ornamental reluctant selenium temporal sensory overdraft pamper
-revive segregate thrifty slander ruthless sanitary sentient
-sluttish tempest tepid serene typhoon polytechnic prestige
-protein stitch promising superficial religion payslip
-pervasive prolonged 
+oasis obscure offshore overtime painstaking peel perimeter perpendicular persevere perturb plough porous portrait poverty precipitation predator probe prospect reap reckless reel referee remnant residential resort respond reticent revolt roar sacrifice saddle scrap scrap seasoning shabby shatter sheer shimmer shoal sketch skull slum solitary sophisticated souvenir spectator spiral sprint steer straightforward stride struggle successive swear sweep symmetry tap tenacious tenacity thrive tinge torque treatise tug turbine turf twilight twinkle unfold 
 
 # U-V-W-X-Y-Z
 
-wedge veterinarian vintage vigorous upkeep vivid wander
-wad ulterior vulgar vapor viability unanimous
+uppish vacant vanish vegetation venerate vent venture verge versed voyage wane whirl wield wilderness wrench wrenching
